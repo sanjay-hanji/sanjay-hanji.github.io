@@ -1,1 +1,1 @@
-# sanjay-hanji.github.io
+# sanjayhanji.github.io
